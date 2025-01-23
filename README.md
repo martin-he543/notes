@@ -1,4 +1,4 @@
-### Here you can find a compilation series of notes encompassing my entire education.
+### Here you can find a compilation series of notes encompassing my entire education. Enjoy!
 
 #### GCSEs
 Contents
